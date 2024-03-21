@@ -1,4 +1,4 @@
 # VNCODEZ
 ⩒––MY PROJECTS—⩒
 <br>
-Author --><i><u> Vaibhav Nohria</i></u>
+Author --><i><u> (Vaibhav Nohria)</i></u>
